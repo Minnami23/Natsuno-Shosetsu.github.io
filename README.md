@@ -1,1 +1,0 @@
-# Natsuno-Shosetsu.github.io
